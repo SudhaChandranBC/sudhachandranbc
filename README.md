@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### Hi there 👋 I am [Sudha Chandran](https://www.sudhachandranbc.online)👋 
 <br/>
 <a href="https://twitter.com/SudhaKishoreBC">
